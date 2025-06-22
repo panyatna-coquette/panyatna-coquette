@@ -1,4 +1,4 @@
-# panyatna
+# panyatna >_<
 ### <p align="center"> ![image](https://media1.tenor.com/m/ZjLy7tOKdgEAAAAd/shuyuka-saimatsu.gif)
 ____ 
 
