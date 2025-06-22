@@ -11,7 +11,7 @@ ____
 
 ### <p align="center"> ![image](https://media1.tenor.com/m/lRThTpVFDVcAAAAC/mikoto-kayano-kayano-mikoto.gif)
 ### <p align="center"> My DNI list 0_) :
-### <p align="center"> base + devaluation of tontegs, devaluation of people's triggers and SPECIFICALLY touching them and accusing people of being GUILTY of their triggers, radfem, t/queer/xeno/homophobes, support/neutrality of aggressor countries and/or war, violation of the boundaries of certain personixes, special deadnaming/misgendering/misprouncing, ridiculing neo-pronouns, soushin fans and if your main fandom is YTTD.
+### <p align="center"> base + devaluation of tontegs, devaluation of people's triggers and SPECIFICALLY touching them and accusing people of being GUILTY of their triggers, radfem, t/queer/xeno/homophobes, support/neutrality of aggressor countries and/or war, violation of the boundaries of certain personixes, special deadnaming/misgendering/misprouncing, ridiculing neo-pronouns, soushin fans and if your main fandom is YTTD, <13 yo.
 ### <p align="center"> by the way: I'm not in the shipp discourse! I don't care what pairings you like, just don't force them on me :)
 
 ____ 
